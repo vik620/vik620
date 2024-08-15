@@ -10,6 +10,7 @@ Meu nome é Vitória Silva
 ### Você pode entrar em contato comigo 📫
 
 00001136067875sp@al.educacao.sp.gov.br
+
 @00001136067875sp
 
-![](https://tenor.com/pt-BR/view/falling-baymax-oops-nope-big-hero6-gif-19035280)
+![](https://media1.tenor.com/m/VfHx8eNY6GYAAAAd/falling-baymax.gif)
